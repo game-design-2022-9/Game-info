@@ -1,1 +1,1 @@
-# I will put the game story-line, game thought flow chart in here
+# I will put the game story-line, game  flow chart in here
